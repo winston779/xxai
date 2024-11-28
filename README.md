@@ -1,6 +1,6 @@
 # XXAI机场官网地址
 
-最新地址：[xx-ai.uk](https://xx-ai.uk?invite_code=2HkzMwlv)
+最新地址：[xx-ai.uk](https://xx-ai.co?invite_code=2HkzMwlv)
 
 ## XXAI介绍
 
